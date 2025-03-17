@@ -1,4 +1,4 @@
-# 👋 Hey there! I'm Manakasina Judicaël Jean François  
+# 👋 Hey there! I'm Manakasina Judicaël JEAN FRANCOIS  
 
 ## 🚀 About Me  
 
